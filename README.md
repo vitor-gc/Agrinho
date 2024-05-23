@@ -1,4 +1,4 @@
-- ### Olá, sou o Professor Rafael Assis Santos
+- ### Olá, sou o aluno Vitor Gabriel de Paula da Cruz
 - ### Embaixadora do NRE - Luzia Siscati
 - ### Projeto Agrinho 2024
 - ### Colégio Estadual Rio Branco
